@@ -1,4 +1,4 @@
-
+Experience plants vs brainrots like never before with stealth plants vs brainrots Script, the #1 Script. Includes fly and auto-collect for unbeatable
 
 
 
